@@ -3,4 +3,4 @@
 
 Estou em quarentena, fazendo o Gama Academy ! 
 
-Esta linha, alterei pelo próprio site, impressionante !! 
+Nesta linha, alterei pelo próprio site, impressionante !! 
